@@ -1,2 +1,4 @@
-# rem-cua-phong-ngu
-Lựa chọn mua rèm cửa sổ phòng ngủ thế nào cho đẹp
+# Lựa chọn mua rèm cửa sổ phòng ngủ thế nào cho đẹp
+Rèm vải có nhiều mẫu mã màu sắc cũng như hoa văn. Giúp cho việc trang trí không gian phòng ngủ của bạn đẹp và sang trọng thoải mái hơn. Màu sắc rèm cửa sổ phòng ngủ cao cấp phải đảm bảo kết hợp với các sản phẩm nội thất trong phòng hài hòa. Và mang lại không gian đẹp và thoải mái cho người dùng. Cho nên bạn cần lựa chọn gam màu sao cho phù hợp. Tuy nhiên đa số theo thống kê của Nội Thất Leo thì gam màu sắc cho phòng ngủ đẹp nhiều người chọn là màu xanh nhẹ, vàng, hồng hoặc tím….sẽ mang lại cho bạn không gian phòng ngủ đẹp và dễ chịu thoải mái khi sử dụng. Đặc biệt rèm phòng ngủ có nhiều loại như rèm vải 2 lớp, 1 lớp, hoặc xếp lớp dày cho nên lựa chọn mua cần đảm bảo mang lại cho bạn mẫu rèm sử dụng cho không gian hiệu quả nhất.
+
+https://noithatleo.com/goc-chia-se/rem-cua-phong-ngu/
